@@ -1,1 +1,1 @@
-Mainly for my friend, B and myself. If you wan't you can use them.
+Mainly for my friend, Brit and myself. If you wan't you can use them.
